@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Python(Major) and R (Minor)
 - 💞️ I’m looking to collaborate on ...Business analytics 
 - 📫 How to reach me ...Reach me @gundicecryomancer@gmail.com
-- 😄 Pronouns: ...He/Him/Man/MR/Sir
+- 😄 Pronouns: ...He/Him/Man/MR/Sir/Himself
 - ⚡ Fun fact: ...i'm an avid gamer and music lover
 
 <!---
